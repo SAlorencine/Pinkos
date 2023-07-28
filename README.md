@@ -1,1 +1,1 @@
-# Pinkos
+# pinko1-modelo
